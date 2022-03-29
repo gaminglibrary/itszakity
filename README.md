@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @itszakity
+- I post code and see if people want it
